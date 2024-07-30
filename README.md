@@ -4,4 +4,5 @@
 - 💞️ I’m looking to collaborate with people and friends that are really good with design
 - 📫 How to reach me Via Whatsapp +234(0)8128265925
 - 😄 Pronouns: Male
-- ⚡ Fun fact: I play games in my leisure time and Practice my Design templates 
+- ⚡ Fun fact: I play games in my leisure time and Practice my Design templates
+- 
